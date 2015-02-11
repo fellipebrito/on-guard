@@ -19,7 +19,7 @@
   - **D.** Sendo assim, porque não dar uma segunda chance para analisar a verdade oferecida pelo Cristianismo Bíblico?
 
 ### O Sucesso do Cristianismo Bíblico
-O Cristianismo Bíblico tem exito exatamente onde o ateísmo falha.
+O Cristianismo Bíblico tem êxito exatamente onde o ateísmo falha.
 
 Agora, nada disso prova que o Cristianismo Bíblico é verdadeiro. O ateu pode afirmar que eu abracei uma Nobre Mentira e que assim estou enganando a mim mesmo. Sim, devemos examinar melhor os argumentos contra a existência de Deus. Mas por hora, ao menos temos que deixar clara nossas alternativas:
 
@@ -27,6 +27,6 @@ Agora, nada disso prova que o Cristianismo Bíblico é verdadeiro. O ateu pode a
 
 Apenas a segunda dessas duas alternativas nos permite viver felizes e consistentemente. Sendo assim há uma diferença **enorme** se Deus existe ou não.
 
-Além disso, me parece que mesmo que as evidências para essas duas opções fossem exatamente iguais, uma pessoa racional optaria por escolher a opção de acreditar em Deus. Porque, se as evidências são iguais, me parece completamente irracional preferir a morte, fultilidade e destruição invez de vida, sentido e felicidade. Como Pascal uma vez falou, nesse caso, *"não temos nada a perder e temos o infinito para conquistar"*.
+Além disso, me parece que mesmo que as evidências para essas duas opções fossem exatamente iguais, uma pessoa racional optaria por escolher a opção de acreditar em Deus. Porque, se as evidências são iguais, me parece completamente irracional preferir a morte, futilidade e destruição invés de vida, sentido e felicidade. Como Pascal uma vez falou, nesse caso, *"não temos nada a perder e temos o infinito para conquistar"*.
 
 Meu objetivo, por hora, é mais modesto do que lhe convencer de que Deus existe, eu apenas espero que você *pense* a respeito desse problema, para realizar que o assunto sobre a *existência de Deus* tem profundas consequências para nossas vidas e que nós não podemos nos dar o privilégio de ser indiferentes quanto a isso.
