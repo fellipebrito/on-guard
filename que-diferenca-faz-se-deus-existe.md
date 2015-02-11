@@ -1,18 +1,22 @@
-I. Se Deus não existe, então toda a vida humana bem como cada indivíduo será destruído.
-II. Se não há um Deus e não há vida após a morte, então a vida não tem:
-  A. Sentido
+####I. Se Deus não existe, então toda a vida humana bem como cada indivíduo será destruído.
+
+####II. Se não há um Deus e não há vida após a morte, então a vida não tem:
+ - **A. Sentido**
     1. Sem a imortalidade uma vida não tem um significado e não faz nenhuma diferença no destino do mundo.
-  B. Propósito
+ - **B. Propósito**
     1. Sem a imortalidade nosso destino é a extinção através da morte.
     2. Sem um Deus não há nenhum propósito para existirmos ou para termos vindo a esse mundo.
-III. É impossível viver consistentemente e feliz olhando o mundo de um ponto de vista ateu.
-  A. Se nós vivemos felizes como ateus, é porque de maneira inconsistente criamos para nós um sentido e um propósito, mesmo que este seja sem nenhum fundamento.
-  B. Se vivemos consistentemente como ateus, nós devemos ser profundamente infelizes e até um pouco desesperados porque nós sabemos que nossas vidas são sem sentido, inúteis e sem propósito.
-IV. O Cristianismo Bíblico desafia essa maneira de olhar a vida.
-  A. De acordo com o Cristianismo Bíblico Deus existe e a vida não acaba na morte.
-  B. O Cristianismo Bíblico afirma que há condições suficientes para uma vida com Sentido e Propósito: Deus e imortalidade.
-  C. O Cristianismo Bíblico oferece uma estrutura na qual podemos viver consistemente e felizes.
-  D. Sendo assim, porque não dar uma segunda chance para analisar a verdade oferecida pelo Cristianismo Bíblico?
+    
+
+####III. É impossível viver consistentemente e feliz olhando o mundo de um ponto de vista ateu.
+ - **A.** Se nós vivemos felizes como ateus, é porque de maneira inconsistente criamos para nós um sentido e um propósito, mesmo que este seja sem nenhum fundamento.
+ - **B**. Se vivemos consistentemente como ateus, nós devemos ser profundamente infelizes e até um pouco desesperados porque nós sabemos que nossas vidas são sem sentido, inúteis e sem propósito.
+
+####IV. O Cristianismo Bíblico desafia essa maneira de olhar a vida.
+  - **A.** De acordo com o Cristianismo Bíblico Deus existe e a vida não acaba na morte.
+  - **B.** O Cristianismo Bíblico afirma que há condições suficientes para uma vida com Sentido e Propósito: Deus e imortalidade.
+  - **C.** O Cristianismo Bíblico oferece uma estrutura na qual podemos viver consistemente e felizes.
+  - **D.** Sendo assim, porque não dar uma segunda chance para analisar a verdade oferecida pelo Cristianismo Bíblico?
 
 ### O Sucesso do Cristianismo Bíblico
 O Cristianismo Bíblico tem exito exatamente onde o ateísmo falha.
